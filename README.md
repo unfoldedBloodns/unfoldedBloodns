@@ -33,9 +33,24 @@
        @j134nn9090
        @N0V4-B1
        @ZukkosHonor
+
+
+
+       int if i have freetime ,, no resp sometimes.
+
+            pls do not be afraid of me im very nice when being talked/asked
+
+            how to reach me ? : im always at bakery area on safe server #1.
+            sometimes at chinese safe server.
+
+
+
+       
        
        ── ⋆⋅☆⋅⋆ ──── ⋆⋅☆⋅⋆ ──── ⋆⋅☆⋅⋆ ──── ⋆⋅☆⋅⋆ ──── ⋆⋅☆⋅⋆ ──── ⋆⋅☆⋅⋆ ──── ⋆⋅☆⋅⋆ ──── ⋆⋅☆⋅⋆ ──── ⋆⋅☆⋅⋆ ──── ⋆⋅☆⋅⋆ ──── ⋆⋅☆⋅⋆ ── ⋆⋅☆⋅⋆ ──
 
+       
+       
        thats all ! thank you for reading my read me !
            always remeber that your important to someone special !
 
@@ -44,16 +59,8 @@
 
 
                                                         GOOD BYE ! 
-**unfoldedBloodns/unfoldedBloodns** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+                                                        
+                                                        
+                                                        
+                                                        
+                                                        
