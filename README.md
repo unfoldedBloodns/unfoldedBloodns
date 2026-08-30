@@ -1,5 +1,16 @@
 ## About me ⋆˚𝜗𝜚˚⋆
 
+
+
+
+                                  ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
+
+
+
+
+           °❀.ೃ࿔* Wₑₗcₒₘₑ ₜₒ ₘy Gᵢₜₕᵤb °❀.ೃ࿔*
+
+    
     Hello !
     call me derek , spring
     ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
@@ -9,10 +20,12 @@
     feel free to follow that account ! ⋆.ೃ࿔🌸*:･
     i like to draw and listen to musics ! ㅤ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤ
     Try listenting to :
-    Perfect pair by R.L beats !
+    Perfect pair by R.L beats !                        𓊆ྀི❤︎𓊇ྀི        𓊆ྀི❤︎𓊇ྀི        𓊆ྀི❤︎𓊇ྀི   
     another cup
     go away
     new perspective
+
+    ⊹ ࣪ ﹏𓊝﹏𓂁﹏⊹ ࣪ ˖. ܁₊ ⊹ . ܁ ⟡ ܁ . ⊹ ₊ ܁.𓏵‧₊˚ ┊
 
     𒄆𓁹✞𒀱✞𓁹𒄆𒄆𓁹✞𒀱✞𓁹𒄆𒄆𓁹✞𒀱✞𓁹𒄆𒄆𓁹✞𒀱✞𓁹𒄆𒄆𓁹✞𒀱✞𓁹𒄆𒄆𓁹✞𒀱✞𓁹𒄆𒄆𓁹✞𒀱✞𓁹𒄆𒄆𓁹✞𒀱✞𓁹𒄆
 
@@ -44,6 +57,11 @@
             sometimes at chinese safe server.
 
 
+            90% of seeing me using   ⤷ ゛D3RLORD3 ˎˊ˗ 𓂃🪶
+
+            Please Sign my ata / Straw Page
+
+
 
        
        
@@ -54,6 +72,9 @@
        thats all ! thank you for reading my read me !
            always remeber that your important to someone special !
 
+
+              ▶︎ •၊၊||၊|။||||။‌‌‌‌‌၊|• 0:10
+ 
 
 
 
